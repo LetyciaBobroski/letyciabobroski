@@ -1,6 +1,6 @@
 ### Hi there 🦋 
 🎀 my names is Letycia Bobroski 
-🏙  i live in in Irati Paraná Brazil 
+🏙  i live in Irati Paraná Brazil 
 ✅ i have 19 years old 
 💁🏻 I'm studying programming because it's an area that I identify with.
 

@@ -1,7 +1,7 @@
 ### Hi there 🦋 
 🎀 my names is Letycia Bobroski 
 🏙  i live in Irati Paraná Brazil 
-✅ i have 19 years old 
+✅ i have 21 years old 
 💁🏻 I'm studying programming because it's an area that I identify with.
 
 **LetyciaBobroski/letyciabobroski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
